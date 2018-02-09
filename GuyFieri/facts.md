@@ -1,5 +1,5 @@
 # Facts about Guy Fieri (as told by Guy)
-*sourced from http://mentalfloss.com/article/91634/10-movies-and-1-tv-show-almost-starred-gene-hackman*
+*sourced from http://mentalfloss.com/article/76663/10-wild-facts-about-guy-fieri*
 
 At the age of 10, I built a bicycle-powered pretzel cart with my dad. We called “The Awesome Pretzel.”
 
